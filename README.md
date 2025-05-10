@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **pasindutharushahewage@gmail.com**
 
-- ⚡ Fun fact **I'm currently working in a bank**
+- ⚡ **I'm currently working in Pan Asia Bank as a IT Systems Operator**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
